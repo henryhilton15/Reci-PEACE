@@ -1,4 +1,4 @@
-https://github.com/henryhilton15/Recipeace
+https://henryhilton15.github.io/Recipeace/
 
 A site where you can learn how to nourish your body with mother nature's gifts oh thank Gaia is she not so beautiful the bouny she hath provisioned unto us.
 
